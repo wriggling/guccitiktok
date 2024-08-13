@@ -12,3 +12,8 @@ I recommend using the exe file if you don't feel like dealing with python's bull
 
 # SESSIONID ERROR
 Create the tiktok account in any arab country that's how it works.
+
+# CREDITS
+@cxcvc on Discord
+Discord Server: https://discord.gg/bKVHsqsdCF
+Video Creator: @cuttas on Discord
