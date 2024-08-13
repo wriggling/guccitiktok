@@ -14,4 +14,4 @@ I recommend using the exe file if you don't feel like dealing with python's bull
 Create the tiktok account in any arab country that's how it works.
 
 # CREDITS
-@cxcvc on Discord\n\nDiscord Server: https://discord.gg/bKVHsqsdCF\n\nVideo Creator: @cuttas on Discord
+@cxcvc on Discord, Video Creator: @cuttas on Discord, Discord Server: https://discord.gg/bKVHsqsdCF
